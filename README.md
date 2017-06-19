@@ -13,6 +13,9 @@ https://ja.wikipedia.org/wiki/%E9%95%B7%E5%A1%9A%E5%8F%A4%E5%A2%B3_(%E6%B2%BC%E6
 ３、清水柳北1号ちゃん
 https://ja.wikipedia.org/wiki/%E6%B8%85%E6%B0%B4%E6%9F%B3%E5%8C%971%E5%8F%B7%E5%A2%B3
 
+４、子ノ神古墳ちゃん
+https://ja.wikipedia.org/wiki/%E5%AD%90%E3%83%8E%E7%A5%9E%E5%8F%A4%E5%A2%B3_(%E6%B2%BC%E6%B4%A5%E5%B8%82)
+
 漫画やアニメーション、アイコン、グッズの素材に利用ＯＫです。
 このキャラクターは、古墳自体の擬人化となります。
 古墳ちゃんたちの服装や装飾品など、古墳自体の調査結果からみて
