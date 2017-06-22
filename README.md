@@ -23,6 +23,7 @@ https://ja.wikipedia.org/wiki/%E5%AD%90%E3%83%8E%E7%A5%9E%E5%8F%A4%E5%A2%B3_(%E6
 
 <OpenStreetMapと組み合わせた散策地図>  
 ・高尾山古墳-長塚古墳マップ.pdf
+・清水柳北1号墳マップ.pdf
 
 -------------------------------
 2017/4/14 Code for Numazu 提供
